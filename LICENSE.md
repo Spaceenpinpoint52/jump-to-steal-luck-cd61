@@ -1,4 +1,4 @@
-#  
+#  Experience jump to steal lucky blocks like never before with jump to steal lucky blocks updated Scripts, the #1 Script. Includes auto-sell and
 
 
 
